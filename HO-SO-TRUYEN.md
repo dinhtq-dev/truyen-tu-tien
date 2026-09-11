@@ -2,7 +2,7 @@
 
 ## Hạt nhân
 
-Trần An là thiếu niên nghèo tại xóm Cồn, vùng núi Việt Nam. Cha mẹ mất sớm, hắn nuôi em gái Trần Nhi bằng khoai mót và lương thực rừng. Trong mắt tu sĩ, Trần An có Ngũ linh căn hỗn tạp, hấp thu linh khí cực chậm: một phế vật không đáng đào tạo.
+Trần An là thiếu niên mười hai tuổi tại xóm Cồn, vùng núi Việt Nam. Cha mẹ mất sớm, hắn nuôi em gái tám tuổi Trần Nhi bằng cá sông, rau dại và lương thực rừng. Trong mắt tu sĩ, Trần An có Ngũ linh căn hỗn tạp, hấp thu linh khí cực chậm: một phế vật không đáng đào tạo.
 
 Trần Nhi mang Thiên linh căn hệ Thủy, thiên phú hiếm có. Khi các tông môn xuống núi tuyển đồ, nàng được Bích Thủy Cung đưa đi làm đệ tử hạch tâm. Cùng ngày, Trần An chỉ được Thanh Mộc Tông nhận làm tạp dịch vì em gái cầu xin và vì hắn biết chăm ruộng.
 

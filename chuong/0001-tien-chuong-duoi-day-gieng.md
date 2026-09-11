@@ -10,13 +10,13 @@ Nói là nhà cũng hơi quá. Bốn bức vách trộn đất với rơm, mái 
 
 Trong căn chòi ấy chỉ còn hai anh em.
 
-Trần An mười bốn tuổi. Hắn gầy, vai chưa rộng, nước da sạm nắng và hai bàn tay chai hơn nhiều người trưởng thành. Ba năm trước, cha mẹ hắn theo bè gỗ xuống huyện bán hàng rồi gặp lũ quét. Người trong xóm tìm suốt năm ngày, cuối cùng chỉ vớt được chiếc nón của mẹ mắc trên bãi lau.
+Trần An vừa tròn mười hai tuổi. Hắn gầy, vai còn nhỏ, nước da sạm nắng; hai bàn tay non choẹt đã nổi những vết chai không hợp với tuổi. Hai năm trước, cha mẹ hắn theo bè gỗ xuống huyện bán hàng rồi gặp lũ quét. Người trong xóm tìm suốt năm ngày, cuối cùng chỉ vớt được chiếc nón của mẹ mắc trên bãi lau.
 
 Từ hôm đó, An thành chủ nhà.
 
 Hắn biết cày, biết đặt lờ, biết phân biệt rau ăn được với lá độc trên núi. Hắn cũng biết một bát gạo phải đong bao nhiêu nước mới nấu thành nồi cháo đủ cho hai người, biết nói mình đã ăn rồi mà không để em gái nhận ra bụng đang đói.
 
-Trần Nhi năm nay tám tuổi, là người thân duy nhất của hắn.
+Trần Nhi năm nay tám tuổi, kém anh bốn tuổi và là người thân duy nhất của hắn.
 
 Con bé có đôi mắt giống mẹ, tóc đen dài nhưng thân thể nhỏ hơn bạn cùng tuổi một vòng. Nhi ngoan, ít khóc. Những hôm đói quá, nó thường uống đầy bụng nước rồi bảo anh rằng mình không thích ăn cơm. Lời nói dối ấy vụng về đến mức lần nào An nghe cũng phải quay mặt đi.
 
@@ -230,56 +230,88 @@ Con bé nhìn hắn, rõ ràng không tin. Nó múc nửa bát cháo sang bát c
 
 An không từ chối. Hắn ngồi cạnh bếp, vừa ăn vừa nhìn dấu tròn trên cổ tay.
 
-Đêm ấy, khi Nhi đã ngủ, hắn mang một nắm hạt lúa lép vào Ngũ Hành Động Thiên.
+Đêm xuống sâu hơn.
 
-An gieo chúng xuống thửa ruộng gần giếng nhất, múc nước tưới lên.
+Mưa đã nhẹ, chỉ còn rơi lộp bộp trên mái lá. Trần Nhi uống hết bát thuốc rồi ngủ, hơi thở không còn gấp như buổi sáng. An ngồi bên chõng đến khi chắc chắn trán em đã bớt nóng mới khép cửa, lấy từ góc bếp ra một chiếc bát mẻ.
 
-Không có cây lúa nào mọc tức thì.
+Dưới đáy bát có mười bảy hạt lúa.
 
-Hắn đợi một canh giờ. Lớp đất chỉ hơi ẩm hơn.
+Đó là số hạt còn sót lại sau khi hắn đãi gạo nấu cháo. Hạt nào cũng nhỏ, vỏ xám, có hạt còn sứt một góc. Đem xay cũng chẳng được mấy hạt cơm; nhưng nếu nơi kỳ lạ kia thật sự là ruộng, chúng có thể đáng giá hơn một bữa ăn.
 
-An không thất vọng. Hắn từng làm ruộng từ nhỏ; hạt giống cần thời gian, đất tốt cũng không thể biến đá thành cơm trong chớp mắt.
+An bốc mười hạt, để lại bảy hạt trong bát.
 
-Trước khi rời đi, hắn thấy một hạt lúa đã nứt vỏ, nhú mầm trắng nhỏ như sợi tóc.
+Hắn chưa dám đặt hết hy vọng vào một vật vừa lấy được dưới giếng ma.
 
-Ba ngày sau ở ngoại giới, thửa ruộng đầu tiên trong động thiên đã trải qua ba mươi năm.
+An ngồi xuống cạnh bếp, nắm cổ tay trái và nhớ tới khoảng trời xám.
 
-Đám lúa lép mọc rồi tàn qua nhiều mùa. Những hạt chắc nhất được An giữ lại gieo tiếp. Mỗi lần trở vào, hắn lại có cảm giác đã bỏ quên cả một đời người sau cánh cửa vô hình.
+Cảm giác rơi hụt xuất hiện.
 
-Cũng trong ba ngày ấy, cơn sốt của Trần Nhi lui hẳn.
+Khi mở mắt, hắn đã đứng bên giếng đá trong Ngũ Hành Động Thiên. Quần áo vẫn khô, bàn chân vẫn dính tro bếp. Chung quanh yên tĩnh đến mức An nghe rõ tiếng tim mình.
 
-Đến sáng ngày thứ bảy, mây trên núi Cấm bị hai luồng sáng xé đôi.
+Hắn không gieo hạt ngay.
 
-Một chiếc thuyền ngọc màu lam và một con hạc gỗ khổng lồ cùng hạ xuống sân đình xóm Cồn.
+Ban ngày hoảng loạn nên chưa kịp nhìn kỹ. Lúc này An cầm một cành củi cháy dở làm dấu, đi dọc bờ năm thửa ruộng. Mỗi thửa rộng chừng nửa sào, đất có màu khác nhau. Một thửa đen và ẩm; một thửa pha cát trắng; ba thửa còn lại khô cứng, nứt thành từng mảng.
 
-Tiếng chuông đồng vang khắp thung lũng.
+Ngoài bờ ruộng không có cỏ, không có côn trùng, cũng không thấy dấu chân thú. Căn nhà tranh phía xa chỉ có một gian. Cửa đóng, trên then phủ lớp bụi dày. An thử đẩy nhưng cánh cửa nặng như đá.
 
-“Tiên nhân tuyển đồ!”
+Hắn không cố nữa.
 
-Dân làng bỏ cả ruộng đồng, dìu con kéo cháu chạy về đình. Trần An nắm tay em gái đứng cuối hàng, quần áo hai người vẫn còn vá chằng vá đụp.
+Cha từng dạy: gặp vật không rõ thì nhìn trước, chạm sau. Trần An chỉ mới mười hai tuổi, nhưng nghèo khó khiến hắn sớm hiểu cái giá của một lần bất cẩn.
 
-Viên đá thử linh căn sáng lên khi Trần Nhi đặt tay vào.
+Hắn quay lại giếng.
 
-Một cột sáng xanh lam bắn thẳng lên trời.
+Thành giếng cao đến thắt lưng. Nước cách miệng chưa đầy một gang tay, trong đến mức nhìn thấy những đường đá xoắn xuống đáy. An dùng chiếc gáo gỗ đặt cạnh giếng múc một ít, ngửi rồi chấm đầu ngón tay lên lưỡi.
 
-Vị nữ tu trên thuyền ngọc bật dậy, ánh mắt nóng rực.
+Nước mát, hơi ngọt.
 
-“Thiên linh căn hệ Thủy!”
+Hắn vẫn không uống.
 
-Cả sân đình im phăng phắc.
+An chọn thửa đất đen. Hắn dùng mảnh ngói nhặt cạnh nhà tranh, đào mười hốc nông thành hai hàng ngay ngắn. Mỗi hốc đặt một hạt lúa, lấp đất vừa kín rồi tưới đúng một gáo nước cho cả hàng.
 
-Đến lượt Trần An, viên đá hiện đủ năm màu. Nhưng mỗi màu đều yếu và đục, chen lấn nhau như đám cỏ dại mọc trên ruộng cằn.
+Công việc quen thuộc khiến nỗi sợ trong lòng dịu đi.
 
-Đạo nhân đứng cạnh hạc gỗ chỉ nhìn thoáng qua.
+Xong xuôi, hắn ngồi xổm bên bờ, chống cằm chờ.
 
-“Ngũ linh căn hỗn tạp.”
+Một khắc trôi qua.
 
-Ông ta đặt viên đá xuống, giọng lạnh nhạt.
+Hai khắc trôi qua.
 
-“Phế vật.”
+Mặt đất không phát sáng. Mầm cây cũng không đội đất chui lên như phép thần trong chuyện kể ở chợ huyện.
 
-Trần Nhi siết chặt tay anh.
+An thở ra, vừa thất vọng vừa thấy yên tâm. Ruộng vẫn là ruộng. Muốn có thóc vẫn phải gieo, phải tưới, phải đợi.
 
-Không ai thấy dấu năm đường vân dưới tay áo Trần An vừa sáng lên.
+Nhưng hắn không biết phải đợi bao lâu.
 
-Càng không ai biết thứ tư chất bị họ khinh miệt chính là chìa khóa duy nhất mở được Ngũ Hành Động Thiên.
+Dòng chữ “ngoại giới một ngày, nơi này mười năm” quá lớn với một đứa trẻ chưa từng rời khỏi xóm Cồn. An bẻ que củi thành hai đoạn, cắm một đoạn cạnh hốc lúa, đoạn kia nhét vào túi. Hắn quyết định lần sau quay lại sẽ so màu tro, độ khô của gỗ và sự thay đổi của hạt giống.
+
+Trước khi rời đi, An nhìn về bức tường sương trắng.
+
+Sau màn sương có tiếng gì đó vừa sượt qua.
+
+Rất khẽ.
+
+Như móng vuốt cào lên mặt đá.
+
+An nín thở. Tiếng động không lặp lại.
+
+Hắn lùi về cạnh giếng, trong đầu nghĩ đến căn nhà của mình.
+
+Ánh lửa bếp hiện ra trước mắt.
+
+Trần An trở lại đúng chỗ cũ. Que củi trong túi vẫn còn, đầu que lạnh ngắt. Trong nồi, giọt nước từ mái vừa rơi xuống, mặt nước chỉ mới gợn một vòng tròn.
+
+Ngoài cửa sổ, mưa đêm phủ kín xóm Cồn.
+
+Nhi trở mình trên chõng, bàn tay nhỏ quờ sang chỗ trống.
+
+An vội nằm xuống bên cạnh. Con bé chạm được tay áo anh mới yên, hàng mày đang nhíu dần giãn ra.
+
+Hắn kéo chăn cho em, nhưng không ngủ.
+
+Trong bóng tối, Trần An nghe tiếng nước sông vọng từ ngoài đê và nhớ lại tiếng cào sau màn sương. Dấu tròn trên cổ tay âm ấm như còn giữ một nhịp tim khác.
+
+Mười hạt lúa đã được gieo xuống.
+
+Đến sáng mai, hắn sẽ biết nơi ấy là cơ duyên cứu mạng hai anh em, hay là một cái miệng đang kiên nhẫn chờ hắn bước sâu hơn.
+
+Đêm đầu tiên của Trần An với Ngũ Hành Châu trôi qua như thế.
