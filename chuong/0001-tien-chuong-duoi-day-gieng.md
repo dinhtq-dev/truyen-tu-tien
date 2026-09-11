@@ -1,32 +1,112 @@
 # Chương 1: Tiếng chuông dưới đáy giếng
 
-Xóm Cồn có một cái giếng không ai dám uống.
+Xóm Cồn nằm lọt giữa hai dãy núi đá, trước mặt là sông Ngàn, sau lưng là núi Cấm.
 
-Giếng nằm sau ngôi miếu đổ dưới chân núi Cấm. Thành giếng phủ rêu, dây si quấn kín, nước quanh năm đen như mực. Người già trong xóm kể rằng mỗi khi lũ lớn sắp về, dưới đáy giếng sẽ vang tiếng chuông.
+Cả xóm có bốn mươi ba nóc nhà. Nhà khá giả lợp ngói âm dương, nhà nghèo lợp rạ; mùa nắng cùng hứng gió Lào, mùa mưa cùng nghe nước sông gõ vào chân đê. Người trong xóm sống bằng mấy thửa ruộng bậc thang, ít luống ngô trên nương và cá tôm bắt được sau mỗi mùa nước nổi. Quanh năm làm lụng, hiếm nhà nào đủ thóc đến giáp hạt.
 
-Trần An chưa từng tin.
+Nhà Trần An là căn chòi cuối cùng phía tây, nơi con đường đất hết dấu chân người rồi hóa thành lối mòn lên núi.
 
-Người chết đói không sợ ma. Ma có hiện lên, cùng lắm hắn hỏi xem dưới âm phủ có cơm không.
+Nói là nhà cũng hơi quá. Bốn bức vách trộn đất với rơm, mái lá cọ đã thủng, cửa ghép từ ba tấm ván nhặt bên sông. Trước sân có cây khế già không biết ai trồng. Sau nhà là ba sào ruộng cha hắn để lại, giờ ngập trong nước lũ, chỉ còn mấy ngọn rạ vàng nhô lên như tóc người chết đuối.
 
-Chiều hôm ấy, hắn vẫn tìm đến giếng.
+Trong căn chòi ấy chỉ còn hai anh em.
 
-Mưa nguồn đã kéo dài bảy ngày. Nước sông dâng sát chân đê, cuốn sạch những chiếc lờ An đặt từ sáng. Ba sào ruộng sau nhà chìm trong nước vàng đục. Trong chum chỉ còn một bát gạo lép, còn Trần Nhi đang nằm sốt trên chõng tre.
+Trần An mười bốn tuổi. Hắn gầy, vai chưa rộng, nước da sạm nắng và hai bàn tay chai hơn nhiều người trưởng thành. Ba năm trước, cha mẹ hắn theo bè gỗ xuống huyện bán hàng rồi gặp lũ quét. Người trong xóm tìm suốt năm ngày, cuối cùng chỉ vớt được chiếc nón của mẹ mắc trên bãi lau.
 
-Thầy lang bảo phải có lá xuyên tâm và một con cá quả nấu cháo.
+Từ hôm đó, An thành chủ nhà.
 
-Lá thuốc An đã hái được. Cá thì không.
+Hắn biết cày, biết đặt lờ, biết phân biệt rau ăn được với lá độc trên núi. Hắn cũng biết một bát gạo phải đong bao nhiêu nước mới nấu thành nồi cháo đủ cho hai người, biết nói mình đã ăn rồi mà không để em gái nhận ra bụng đang đói.
 
-Hắn nghe bác Lựu nói sau miếu hoang có một vũng nước thông với khe núi. Lũ dâng, cá lớn thường mắc lại đó. Dù nơi ấy sát cái giếng ma, An vẫn mang giỏ tới.
+Trần Nhi năm nay tám tuổi, là người thân duy nhất của hắn.
 
-Mưa quất nghiêng qua rừng tre. Áo tơi lá cọ rách một mảng, nước lạnh chảy dọc sống lưng. An cúi sát mặt đất, lần từng bụi cỏ ngập nước.
+Con bé có đôi mắt giống mẹ, tóc đen dài nhưng thân thể nhỏ hơn bạn cùng tuổi một vòng. Nhi ngoan, ít khóc. Những hôm đói quá, nó thường uống đầy bụng nước rồi bảo anh rằng mình không thích ăn cơm. Lời nói dối ấy vụng về đến mức lần nào An nghe cũng phải quay mặt đi.
 
-Một vệt bạc bỗng quẫy dưới gốc si.
+Sáng hôm đó, Trần An thức dậy trước tiếng gà gáy.
 
-Hắn lao tới, chụp cả hai tay xuống bùn. Con cá trơn tuột khỏi ngón tay, đập mạnh vào cổ tay rồi mắc giữa hai rễ cây. An nghiến răng ôm lấy nó. Một chiếc vây sắc cứa lòng bàn tay, nhưng lần này hắn không buông.
+Mưa đập ràn rạt trên mái. Nước từ lỗ thủng nhỏ đúng vào chiếc nồi đất đặt giữa nhà, từng giọt đều đặn, lạnh lẽo. Bếp đã tắt từ đêm. Trên chõng tre, Trần Nhi cuộn mình dưới tấm chăn bông cũ, hai má đỏ bất thường.
 
-Con cá quả dài gần một khuỷu tay.
+An đặt mu bàn tay lên trán em.
 
-Đủ cho Nhi ăn hai bữa.
+Nóng như than ủ.
+
+“Anh…” Nhi hé mắt, giọng khàn. “Hôm nay đừng lên núi.”
+
+“Không lên núi.” An kéo chăn kín vai cho em. “Anh ra đồng xem nước, tiện ghé nhà bác Lựu.”
+
+“Trong chum hết gạo rồi.”
+
+“Còn. Anh giấu một đấu trên xà nhà.”
+
+Nhi nhìn lên xà. Nơi ấy trống không.
+
+An ho một tiếng, đứng dậy quá nhanh. “Em ngủ thêm đi. Trưa anh về nấu cháo cá.”
+
+Hai chữ cháo cá khiến đôi mắt con bé sáng lên rồi lập tức tối xuống. Nó hiểu nhà không còn tiền mua cá, mà mấy ngày mưa lớn, ngay cả người lớn khỏe mạnh cũng ít ai dám ra sông.
+
+“Em không đói.”
+
+“Anh biết.” An khoác áo tơi. “Nhưng anh đói.”
+
+Hắn nói xong liền xách chiếc lờ tre cùng giỏ cá ra cửa, không cho em cơ hội cãi.
+
+Đó là việc Trần An phải làm hôm nay: ra bờ sông kiểm tra ba chiếc lờ đặt từ tối qua, sang bãi bồi tìm rau dại, rồi ghé bác Lựu xin ít thuốc hạ sốt. Nếu bắt được cá, hắn sẽ giữ lại con nhỏ nấu cháo, đem con lớn đổi lấy gạo. Nếu không bắt được gì, hắn sẽ lên núi đào củ mài trước khi trời tối.
+
+Kế hoạch ấy nghe đơn giản. Với một nhà chỉ còn nửa bát gạo lép, nó là ranh giới giữa no và đói của hai ngày kế tiếp.
+
+Trời vừa sáng, xóm Cồn đã chìm trong một màu xám đục. Nước từ sườn núi tràn qua đường, kéo theo lá mục và cành khô. Người lớn tụ tập trên đê, dùng bao đất chèn nơi sạt lở. Không ai rảnh để ý cậu thiếu niên gầy đeo lờ đi ngược dòng mưa.
+
+Ba chiếc lờ đều mất.
+
+Cọc tre bị nước nhổ bật, dây buộc đứt sạch. An lội dọc bờ gần nửa dặm, chỉ tìm thấy một đoạn nan tre mắc trong bụi lác.
+
+Hắn đứng dưới mưa, siết đoạn nan đến bật máu tay rồi lặng lẽ buông ra.
+
+Không được nổi giận. Nổi giận không làm chiếc lờ trở về, càng không làm đầy chum gạo.
+
+Bác Lựu, người từng theo thầy thuốc dưới huyện, cho hắn một nắm lá xuyên tâm và bảo:
+
+“Con Nhi cảm lạnh, lại thiếu ăn lâu ngày nên mới kiệt sức. Có cá quả nấu cháo thì tốt. Nhưng sông đang dữ, cháu đừng liều.”
+
+An vâng lời, cất thuốc vào ngực áo.
+
+Ra khỏi cổng, hắn không đi về nhà.
+
+Bác Lựu từng nói sau ngôi miếu đổ dưới chân núi Cấm có một vũng trũng thông với khe núi. Mỗi khi nước dâng, cá theo dòng chảy vào đó rồi mắc giữa rễ si. Người trong xóm không đến bắt, vì cạnh vũng có một cái giếng cổ.
+
+Nước giếng quanh năm đen như mực. Người già kể rằng trước những trận lũ lớn, dưới đáy sẽ vang tiếng chuông gọi hồn. Kẻ nào nghe đủ ba tiếng mà còn đứng cạnh giếng thì sang năm ngày giỗ sẽ có thêm một bát cơm.
+
+Trần An chưa từng tin chuyện ấy.
+
+Người sống còn chưa cho hắn bát cơm, ma quỷ lấy đâu ra gạo mà mời.
+
+Gần trưa, hắn tới ngôi miếu.
+
+Mái miếu đã sập một nửa. Tượng thần không còn đầu, rêu xanh bò kín bệ đá. Phía sau miếu, cây si cổ thụ xòe rễ ôm lấy thành giếng. Nước mưa dồn thành dòng, chảy xiết qua bãi cỏ rồi đổ xuống một vũng sâu dưới gốc cây.
+
+An đặt giỏ xuống, cởi áo tơi, buộc gọn ống quần. Hắn dùng cành tre thăm từng hốc nước, ánh mắt không bỏ sót một gợn sóng.
+
+Một khắc trôi qua. Rồi hai khắc.
+
+Mưa lạnh làm môi hắn tím lại.
+
+Đúng lúc An nghĩ phải bỏ cuộc để lên núi đào củ mài, một vệt đen vụt qua dưới rễ si.
+
+Hắn nín thở, ép người sát mặt nước.
+
+Vệt đen lại xuất hiện.
+
+An đâm cành tre xuống phía sau nó, chặn đường lui, rồi thọc cả hai tay vào bùn. Vật kia quẫy dữ dội, trơn tuột khỏi ngón tay, đập vào cổ tay hắn và lao về khe rễ.
+
+Hắn nhào theo, mặc đầu gối va vào đá.
+
+Lần này, hai tay ôm được thân cá chắc nịch. Vây cá cứa rách lòng bàn tay, máu hòa vào nước. An nghiến răng, ghì nó lên bờ.
+
+Một con cá quả dài gần một khuỷu tay nằm quẫy trong bùn.
+
+An nhìn nó, lần đầu tiên trong ngày nở nụ cười.
+
+Con cá này đủ nấu cháo cho Nhi, phần còn lại đổi được vài bát gạo.
+
+Hôm nay hai anh em sẽ không phải nhịn đói.
 
 An vừa bỏ cá vào giỏ thì mặt đất rung nhẹ.
 
